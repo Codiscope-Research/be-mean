@@ -13,7 +13,7 @@ Você poderá acompanhar toda a criação dele aqui nesse repositório e se quis
 
 Se eu fosse cobrar me baseando nos valores atuais sairia algo em torno de **R$ 900/1000**, já que o meu de 20 horas custa R$ 600, mas como é muito caro e eu quero ensinar para o máximo de pessoas eu vou soltar ele como **CROWDFUNDING** então se atingirmos a meta, sim tem q ter meta aqui Dilma, o curso será dado online e ABERTO, todo conteúdo gerado e as aulas ao vivo QUALQUER UM poderá ver mesmo se não pagar, mas ele só sairá se conseguirmos atingir a meta.
 
-## Pêmios
+## Prêmios
 Prêmios para as doações são crescentes, ganha tudo o que os prêmios menores ganham e algo a mais.
 
 - **R$ 20** - 1 adesivo do Workshop Be MEAN
