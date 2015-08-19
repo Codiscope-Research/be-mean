@@ -4,6 +4,8 @@ Workshop de MEAN (Mongodb, Express, Angular e Node)  via CROWDFUNDING.
 
 Nesse workshop ensinarei como criar um Instagram, com autorização, upload de fotos, real time, etc. 
 
+Você poderá acompanhar toda a criação dele aqui nesse repositório e se quiser também pode contribuir enviando sugestões via issues e pull requests para corrigir algo.
+
 ## Duração
 
 30 a 40 horas.
