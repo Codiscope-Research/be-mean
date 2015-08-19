@@ -35,7 +35,7 @@ Doações: R$ 50.000
 
 Sim pode parecer muito e você deve até pensar:
 
-Esse cara está é querendo ficar rico as minhas custas. Porém não percebe que na verdade é ele que está sendo beneficiado pagando 20x menos doq ue pagaria no curso porque outras pessoas estão colaborando também.
+Esse cara está é querendo ficar rico as minhas custas. Porém não percebe que na verdade é ele que está sendo beneficiado pagando 20x menos do que pagaria no curso porque outras pessoas estão colaborando também.
 
 O curso será dado ABERTO e vai ficar gravado e FREE para as pessoas verem.
 Ou seja vc vai doar não apenas para vc ver e sim para todas pessoas que não tem condição.
