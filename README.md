@@ -56,6 +56,7 @@ Além de você pagar uma mixaria por um curso **FODA** você ainda estará contr
 
 As aulas serão dadas via Youtube e serão abertas para **QUALQUER** pessoas ver, então se você doar você estará ajudando a quem não tem condições e todo o material ficará aberto e gratuito **PARA SEMPRE**.
 
+Esse BE MEAN será feito especialmente para a galera das faculdades para eles verem como o mundo lá fora é maior e aprendendo as melhores técnicas para poder entrar de vez no mercado de trabalho. Além disso poder contribuir com o aumento da qualidade da nossa comunidade. 
 
 Espero que você tenha gostado da proposta e possa colaborar, isso irá ajudar e muito nossa comunidade. <3
 
