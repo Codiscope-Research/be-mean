@@ -9,7 +9,7 @@ Nesse workshop ensinarei como criar um Instagram, com autorização, upload de f
 30 a 40 horas.
 
 
-Se eu fosse cobrar me baseando nos valores atuais sairia algo em trono de R$ 800/1000, mas como é muito caro e eu quero ensinar para o máximo de pessoas eu vou soltar ele como **CROWDFUNDING** então se atingirmos a meta, sim tem q ter meta aqui Dilma, o curso será dado online e ABERTO, todo conteúdo gerado e as aulas ao vivo QUALQUER UM poderá ver mesmo se não pagar, mas ele só sairá se conseguirmos atingir a meta.
+Se eu fosse cobrar me baseando nos valores atuais sairia algo em torno de **R$ 900/1000**, já que o meu de 20 horas custa R$ 600, mas como é muito caro e eu quero ensinar para o máximo de pessoas eu vou soltar ele como **CROWDFUNDING** então se atingirmos a meta, sim tem q ter meta aqui Dilma, o curso será dado online e ABERTO, todo conteúdo gerado e as aulas ao vivo QUALQUER UM poderá ver mesmo se não pagar, mas ele só sairá se conseguirmos atingir a meta.
 
 ## Pêmios
 Prêmios para as doações são crescentes, ganha tudo o que os prêmios menores ganham e algo a mais.
@@ -42,7 +42,7 @@ Ou seja vc vai doar não apenas para vc ver e sim para todas pessoas que não te
 
 Fora que se eu tiver que fazer 500 camisetas já são 10.000, mais os adesivos e mais 13% da taxa do sistema do crowdfunding, vem limpopara mim metade disso. E esse valor eu ganharia trabalhando no máximo 2 meses.
 
-Agora pense que ele é minha única fonte de renda e eu vou vender ele, preciso me manoter até conseguir criaroutro projeto.
+Agora pense que ele é minha maior fonte de renda e eu vou vender ele, preciso me manter até conseguir criar outro projeto.
 
 Além de você pagar uma mixaria por um curso **FODA** você ainda estará contribuindo com meus outros projetos gratuitos:
 
