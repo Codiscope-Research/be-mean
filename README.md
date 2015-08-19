@@ -24,7 +24,7 @@ Prêmios para as doações são crescentes, ganha tudo o que os prêmios menores
 - **R$ 300** - o de cima + 1 camiseta a escolher sobre JS
 - **R$ 500** - o de cima + 1 curso para transformar nosso sistema em um APP MOBILE com Ionic e Cordova
 
-**Só abriremos para doações começo de Setembro!!!**
+**Só abriremos para doações 01/Setembro!!!**
 
 ## Meta
 
@@ -56,6 +56,8 @@ Além de você pagar uma mixaria por um curso **FODA** você ainda estará contr
 
 As aulas serão dadas via Youtube e serão abertas para **QUALQUER** pessoas ver, então se você doar você estará ajudando a quem não tem condições e todo o material ficará aberto e gratuito **PARA SEMPRE**.
 
+
 Espero que você tenha gostado da proposta e possa colaborar, isso irá ajudar e muito nossa comunidade. <3
 
 
+# As doações só serão abertas em 1 de Setembro!!!
