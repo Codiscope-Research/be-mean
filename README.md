@@ -42,7 +42,7 @@ Esse cara está é querendo ficar rico as minhas custas. Porém não percebe que
 O curso será dado ABERTO e vai ficar gravado e FREE para as pessoas verem.
 Ou seja vc vai doar não apenas para vc ver e sim para todas pessoas que não tem condição.
 
-Fora que se eu tiver que fazer 500 camisetas já são 10.000, mais os adesivos e mais 13% da taxa do sistema do crowdfunding, vem limpopara mim metade disso. E esse valor eu ganharia trabalhando no máximo 2 meses.
+Fora que se eu tiver que fazer 500 camisetas já são 10.000, mais os adesivos e mais 13% da taxa do sistema do crowdfunding, vem limpo para mim metade disso. E esse valor eu ganharia trabalhando no máximo 2 meses.
 
 Agora pense que ele é minha maior fonte de renda e eu vou vender ele, preciso me manter até conseguir criar outro projeto.
 
