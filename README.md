@@ -26,6 +26,8 @@ Prêmios para as doações são crescentes, ganha tudo o que os prêmios menores
 
 **Só abriremos para doações 01/Setembro!!!**
 
+Quem doa terá acesso a um fórum exclusivo para tirar dúvidas e acesso ao nosso canal no Slack para tirar dúvidas em tempo real, além disse também receberá um **certificado de participação**. Algo muito importante para quem faz faculdade.
+
 ## Meta
 
 ![](http://gospellife.com.br/site-antigo/images/politica/meta-do-pronatec.jpg)
