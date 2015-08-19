@@ -22,6 +22,8 @@ Prêmios para as doações são crescentes, ganha tudo o que os prêmios menores
 - **R$ 300** - o de cima + 1 camiseta a escolher sobre JS
 - **R$ 500** - o de cima + 1 curso para transformar nosso sistema em um APP MOBILE com Ionic e Cordova
 
+**Só abriremos para doações começo de Setembro!!!**
+
 ## Meta
 
 ![](http://gospellife.com.br/site-antigo/images/politica/meta-do-pronatec.jpg)
