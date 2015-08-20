@@ -83,10 +83,15 @@ Deverá utilizar as seguintes especificações:
 
 Deverá conter o logo do Be MEAN.
 
-{<1>}![](http://webschool.io/bemean/images/logo.png)
+![](http://webschool.io/bemean/images/logo.png)
 
 [Versão em vetor](https://cloudup.com/files/iYPROr4FML2/download)
 
 As artes devem ser zipadas com seu nome e enviada para algum Dropbox da vida e a URL você envia nesse [form](https://docs.google.com/forms/d/1RA3UgzTqks0LuhFX0fyuJXZbtR5c8fMnCZH9wfqM8JA/viewform).
+
+## Data limite
+
+Como as doações começarão apenas em 1/Setembro o limite será **25 de Agosto** para que fique para votação até dia **27 de Agosto**.
+
 
 Conto com a sua colaboração!
