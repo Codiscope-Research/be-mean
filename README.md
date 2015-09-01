@@ -26,7 +26,7 @@ As artes devem ser zipadas com seu nome e enviada para algum Dropbox da vida e a
 
 ## Data limite
 
-Como as doações começarão apenas em 1/Setembro o limite será **25 de Agosto** para que fique para votação até dia **27 de Agosto**.
+Como as doações começarão apenas em 7/Setembro o limite será **3 de Agosto** para que fique para votação até dia **6 de Agosto**.
 
 
 Conto com a sua colaboração!
